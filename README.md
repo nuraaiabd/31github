@@ -5,3 +5,5 @@ My plans for 30 days. Period from 29.11.23 to 29.01.24:
 2. Apply for summer programs to USA, also for the conference in Sochi. Deadlines are: December 5 and January 1.
 3. Organizing my own projects: Training about media literacy
 4. Adding and using more than 100 words in active vocabulary
+
+Hello world ✨
