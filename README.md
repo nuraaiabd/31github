@@ -7,3 +7,4 @@ My plans for 30 days. Period from 29.11.23 to 29.01.24:
 4. Adding and using more than 100 words in active vocabulary
 
 Hello world ✨
+Tomorrow I am going to learn more about github and try new things ❤️‍🔥
